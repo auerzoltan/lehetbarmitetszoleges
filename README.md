@@ -1,2 +1,2 @@
-# lehetbarmitetszoleges
-fagy van 
+# Random feladat, mert ezt kérték 
+
