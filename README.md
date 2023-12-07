@@ -1,0 +1,2 @@
+# lehetbarmitetszoleges
+fagy van 
